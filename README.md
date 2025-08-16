@@ -1,0 +1,1 @@
+# Samsung-SW-certificate-Professional
